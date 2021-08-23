@@ -1,2 +1,2 @@
-[Coursera G6KFD7E27XF8.pdf](https://github.com/afifnugraha17/Bangkit_Academy_ML/files/7030644/Coursera.G6KFD7E27XF8.pdf)
+![0001](https://user-images.githubusercontent.com/80049717/130422434-62d9588c-08e1-4f40-bbe6-f5437a53dbec.jpg)
 
